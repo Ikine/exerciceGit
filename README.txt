@@ -1,3 +1,3 @@
 
-Bonjour et bienvenue sur cette exercice
+Bonjour et bienvenue sur cet exercice
 
